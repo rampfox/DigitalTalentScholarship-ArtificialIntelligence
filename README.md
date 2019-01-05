@@ -1,1 +1,0 @@
-# DigitalTalentScholarship-ArtificialIntelligence
